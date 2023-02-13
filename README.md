@@ -1,0 +1,1 @@
+# nyamagabe-district
